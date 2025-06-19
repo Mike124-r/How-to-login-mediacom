@@ -1,1 +1,1 @@
-# How-to-login-mediacom-account
+# How-to-login-mediacom
